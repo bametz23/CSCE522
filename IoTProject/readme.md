@@ -8,5 +8,5 @@
 <br />Michael Afrin -
 <br />Michael Cantwell -
 <br />Saipriya Sairam -
-<br />Meghana Barigala -
+<br />Mercy Barigala -
 <br />Russell Burkhalter -
